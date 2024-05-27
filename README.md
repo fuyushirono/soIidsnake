@@ -1,4 +1,4 @@
-![](https://media.tenor.com/Wn2cVUCKXrQAAAAi/lain-dance.gif) 
+![](https://media.tenor.com/Wn2cVUCKXrQAAAAi/lain-dance.gif)      ***best viewed in phone***
 
 ![](https://64.media.tumblr.com/0a375abe2328194bd035b876a4160249/26ec04fc005d5956-1b/s75x75_c1/1b7115350af6ced35f9df12937e19a2f5113f6f3.gif) ***[idk if imma see u again..](https://bundlrs.cc/fIowerboy)***![](https://64.media.tumblr.com/a95c95663b8cb60adb078b7215e79b1d/943629b544a74c6c-d7/s75x75_c1/3ffe47dd6831c9bd693453ef428b319e35f3ecab.gif) 
    
