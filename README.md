@@ -11,7 +11,6 @@
 
 $\textcolor{#F68B4C}{c+h \ int \ just \ don't \ be \ weird \ please}$ 
 
-![](https://64.media.tumblr.com/528ea015de24cc8bc3fddc3aec3efcd1/48ab18e98b53e06b-c9/s75x75_c1/e9d5e1178fa61da8a6fb62231e4160e852f19ddb.gif) ***𝚂𝚃𝙰𝙼𝙿 𝙲𝙾𝙻𝙻𝙴𝙲𝚃𝙸𝙾𝙽***  ![](https://files.catbox.moe/nhc19i.gif) 
 ![](https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif)
 
 ![](https://vermillion.drr.ac/assets/images/gallery02/eb3f4032.gif?v=ef52d723) ![](https://vermillion.drr.ac/assets/images/gallery02/f6dad93f.gif?v=ef52d723) 
