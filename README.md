@@ -5,13 +5,13 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15ff2f58-6600-411e-8620-956d4320c4e0/day6glz-6f13975b-074e-4fe3-a99b-be2d501bd7ae.png/v1/fill/w_99,h_56,strp/sunflowers_by_glittersludge_day6glz-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8xNWZmMmY1OC02NjAwLTQxMWUtODYyMC05NTZkNDMyMGM0ZTBcL2RheTZnbHotNmYxMzk3NWItMDc0ZS00ZmUzLWE5OWItYmUyZDUwMWJkN2FlLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.ZpOMykyw63VwpsPlMK8LuS8WNKZ25M7mZtvN2eCBPJo)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15ff2f58-6600-411e-8620-956d4320c4e0/day6glz-6f13975b-074e-4fe3-a99b-be2d501bd7ae.png/v1/fill/w_99,h_56,strp/sunflowers_by_glittersludge_day6glz-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8xNWZmMmY1OC02NjAwLTQxMWUtODYyMC05NTZkNDMyMGM0ZTBcL2RheTZnbHotNmYxMzk3NWItMDc0ZS00ZmUzLWE5OWItYmUyZDUwMWJkN2FlLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.ZpOMykyw63VwpsPlMK8LuS8WNKZ25M7mZtvN2eCBPJo)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15ff2f58-6600-411e-8620-956d4320c4e0/day6glz-6f13975b-074e-4fe3-a99b-be2d501bd7ae.png/v1/fill/w_99,h_56,strp/sunflowers_by_glittersludge_day6glz-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8xNWZmMmY1OC02NjAwLTQxMWUtODYyMC05NTZkNDMyMGM0ZTBcL2RheTZnbHotNmYxMzk3NWItMDc0ZS00ZmUzLWE5OWItYmUyZDUwMWJkN2FlLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.ZpOMykyw63VwpsPlMK8LuS8WNKZ25M7mZtvN2eCBPJo)
 ![](https://wilardo.crd.co/assets/images/gallery16/c5913323.gif?v=d19c95ca)![](https://wilardo.crd.co/assets/images/gallery16/c5913323.gif?v=d19c95ca)![](https://wilardo.crd.co/assets/images/gallery16/c5913323.gif?v=d19c95ca)
 
-![](https://64.media.tumblr.com/8dca5a9bb0d64e63a357a20b850b2be3/e5fe53b7bdabec35-31/s400x600/b33c7ab0c3f2d9ca37f8c8196b4e919ddce8305d.gifv)
+![](https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png)
 ![](https://imgur.com/dBCsOFr.png)
-![](https://64.media.tumblr.com/8dca5a9bb0d64e63a357a20b850b2be3/e5fe53b7bdabec35-31/s400x600/b33c7ab0c3f2d9ca37f8c8196b4e919ddce8305d.gifv)
+![](https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png)
 
 $\textcolor{#F68B4C}{c+h \ int \ just \ don't \ be \ weird \ please}$ 
 
-![](https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif)
+![](https://64.media.tumblr.com/70e64ab5ffde106f3073987966a830fd/f55a3e3336a16fd0-57/s1280x1920/3096c9ba91624aa25b3cd08472c6c5fb78264ab5.pnj)
 
 ![](https://vermillion.drr.ac/assets/images/gallery02/eb3f4032.gif?v=ef52d723) ![](https://vermillion.drr.ac/assets/images/gallery02/f6dad93f.gif?v=ef52d723) 
 ![](https://64.media.tumblr.com//tumblr_pbdnbphVX21xz2nuuo2_100.gif) ![](https://64.media.tumblr.com/013f6afe7b85ab7af6b95c176f02521f/7c3dd077ed76e2f9-65/s250x400/f1cc12da865accaa3ee70d8d08a4d8321ca28c39.jpg) ![](https://64.media.tumblr.com/dd8819522e5cfe8b7db8836f4fe53ac4/94152cface8e71f3-6b/s100x200/1f2420ba30694cec0386552579e05fcba53888a3.gifv)
@@ -29,4 +29,4 @@ $\textcolor{#F68B4C}{c+h \ int \ just \ don't \ be \ weird \ please}$
 ![](https://i.imgur.com/wAPtCcD.gif) ![](https://64.media.tumblr.com/9d76c020cadbe86688df06d606d189d7/1830c190cfcbdfbb-4a/s250x400/35dc2e37f4766d0aad262c67cb7ef378b2c0a1c5.gifv)
 
 ![](https://i.imgur.com/bRpiu1c.gif) ![](https://i.imgur.com/G28jYtm.gif) ![](https://i.imgur.com/397obRw.png) ![](https://i.imgur.com/pNwc36X.gif)
-![](https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif)
+![](https://64.media.tumblr.com/70e64ab5ffde106f3073987966a830fd/f55a3e3336a16fd0-57/s1280x1920/3096c9ba91624aa25b3cd08472c6c5fb78264ab5.pnj)
