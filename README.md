@@ -4,9 +4,7 @@
 ![](https://file.garden/Zlc_rlwZaj3gLlZ-/Untitled36_20240530231616.png)
 ![](https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png)
 
-$\textcolor{#8B373B}{ c + h,\ int \ just \ don't \ be \ weird \ please}$ 
 
-![](https://64.media.tumblr.com/70e64ab5ffde106f3073987966a830fd/f55a3e3336a16fd0-57/s1280x1920/3096c9ba91624aa25b3cd08472c6c5fb78264ab5.pnj)
 
 
 ![](https://64.media.tumblr.com//tumblr_pbdnbphVX21xz2nuuo2_100.gif) ![](https://64.media.tumblr.com/013f6afe7b85ab7af6b95c176f02521f/7c3dd077ed76e2f9-65/s250x400/f1cc12da865accaa3ee70d8d08a4d8321ca28c39.jpg) ![](https://64.media.tumblr.com/dd8819522e5cfe8b7db8836f4fe53ac4/94152cface8e71f3-6b/s100x200/1f2420ba30694cec0386552579e05fcba53888a3.gifv)
@@ -24,4 +22,4 @@ $\textcolor{#8B373B}{ c + h,\ int \ just \ don't \ be \ weird \ please}$
 ![](https://i.imgur.com/wAPtCcD.gif) ![](https://64.media.tumblr.com/9d76c020cadbe86688df06d606d189d7/1830c190cfcbdfbb-4a/s250x400/35dc2e37f4766d0aad262c67cb7ef378b2c0a1c5.gifv)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/15ff2f58-6600-411e-8620-956d4320c4e0/day6glz-6f13975b-074e-4fe3-a99b-be2d501bd7ae.png/v1/fill/w_99,h_56,strp/sunflowers_by_glittersludge_day6glz-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8xNWZmMmY1OC02NjAwLTQxMWUtODYyMC05NTZkNDMyMGM0ZTBcL2RheTZnbHotNmYxMzk3NWItMDc0ZS00ZmUzLWE5OWItYmUyZDUwMWJkN2FlLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.ZpOMykyw63VwpsPlMK8LuS8WNKZ25M7mZtvN2eCBPJo)![](https://wilardo.crd.co/assets/images/gallery16/c5913323.gif?v=d19c95ca)![](https://64.media.tumblr.com/bfa3c15e9c6314bc6d5b5d036870a003/a42e1e2d02294812-16/s100x200/31cff7f8ae8057702c737f0eafce56cfd70c3535.png)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6ed76751-77a9-4922-9c57-37fb824e6091/d5rj9lf-b3950140-f92f-4a2d-84a0-c57382abdec2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzZlZDc2NzUxLTc3YTktNDkyMi05YzU3LTM3ZmI4MjRlNjA5MVwvZDVyajlsZi1iMzk1MDE0MC1mOTJmLTRhMmQtODRhMC1jNTczODJhYmRlYzIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VHjGkCyjkEviuP7vyZDQ6W0Vx4Feyt77E1etfCgSGWg)![](https://autism.crd.co/assets/images/gallery05/8b60c391.png?v=f41caa56)
 
 ![](https://i.imgur.com/bRpiu1c.gif) ![](https://i.imgur.com/G28jYtm.gif) ![](https://i.imgur.com/397obRw.png) ![](https://i.imgur.com/pNwc36X.gif)![](https://vermillion.drr.ac/assets/images/gallery02/eb3f4032.gif?v=ef52d723) ![](https://vermillion.drr.ac/assets/images/gallery02/f6dad93f.gif?v=ef52d723)![](https://dl4.glitter-graphics.net/pub/2589/2589504avab8qacdv.gif)
-![](https://64.media.tumblr.com/70e64ab5ffde106f3073987966a830fd/f55a3e3336a16fd0-57/s1280x1920/3096c9ba91624aa25b3cd08472c6c5fb78264ab5.pnj)
+
