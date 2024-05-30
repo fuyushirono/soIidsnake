@@ -1,13 +1,10 @@
-![](https://media.tenor.com/Wn2cVUCKXrQAAAAi/lain-dance.gif)      
 
-![](https://files.catbox.moe/v9ijtm.gif)  ***[idk if imma see u again..](https://bundlrs.cc/fIowerboy)***![](https://64.media.tumblr.com/6661674349234b24d5a909e8da633742/tumblr_inline_msbvj6zNnM1rkldve.gif) 
-   
 
 ![](https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png)
-![](https://imgur.com/dBCsOFr.png)
+![](https://file.garden/Zlc_rlwZaj3gLlZ-/Untitled36_20240530231616.png)
 ![](https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png)
 
-$\textcolor{#F68B4C}{c+h \ int \ just \ don't \ be \ weird \ please}$ 
+$\textcolor{#8B373B}{ c + h,\ int \ just \ don't \ be \ weird \ please}$ 
 
 ![](https://64.media.tumblr.com/70e64ab5ffde106f3073987966a830fd/f55a3e3336a16fd0-57/s1280x1920/3096c9ba91624aa25b3cd08472c6c5fb78264ab5.pnj)
 
