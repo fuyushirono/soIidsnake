@@ -4,4 +4,4 @@
 
 ![](https://file.garden/Zlc_rlwZaj3gLlZ-/Untitled63_20240604122822.png)
 
-[![Watch the video](https://file.garden/Zlc_rlwZaj3gLlZ-/Screenshot_20240604-124624_Pinterest.jpg)](https://pin.it/2ktPJWnnM)
+[![Watch the video](https://file.garden/Zlc_rlwZaj3gLlZ-/Screenshot_20240604-124856_Pinterest.jpg)](https://pin.it/2ktPJWnnM)
